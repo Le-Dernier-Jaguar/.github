@@ -1,8 +1,8 @@
 Le Dernier Jaguar Streaming vf les films et les livres tiennent une partie de mon cœur. Et de cette façon, j’aime tout. Non, je ne parlerai pas de la scène entière, je pourrais finir avec un nouveau film si je le faisais,
 
-Regarder ➡ [Le Dernier Jaguar VOIR STREAMING](https://jm.filmy-zilla.lat/movie/959098)
+Regarder ➡ [Le Dernier Jaguar VOIR STREAMING](https://jm.filmy-zilla.lat/fr/movie/959098)
 
-Telecharger ➡ [Le Dernier Jaguar FILM COMPLETHD](https://jm.filmy-zilla.lat/movie/959098)
+Telecharger ➡ [Le Dernier Jaguar FILM COMPLETHD](https://jm.filmy-zilla.lat/fr/movie/959098)
 
 Sortie du film Le Dernier Jaguar : Date de sortie?
 La suite d’Le Dernier Jaguar, a été confirmé un mois après la sortie du premier film au cinéma. Le 19 mai 2023, Le Dernier Jaguar 2 avait été confirmé. Quand pourrons-nous le voir en salle ? Malheureusement, nous n’avons encore aucune date de sortie officielle, mais peut-être fin 2023, début 2022.
